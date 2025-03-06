@@ -1,5 +1,3 @@
-## Hi, I'm Pedro Soares! 👋
-
 ### 👨‍🎓 About Me  
 I have a strong interest in technology, design, and digital development. I enjoy working on structured and functional solutions, always focusing on organization, creativity, and attention to detail.
 
