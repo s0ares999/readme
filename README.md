@@ -29,9 +29,3 @@ Currently studying Multimedia Technology and Design at Instituto Politécnico de
 
 ### 💡 Goals & Projects  
 Always looking for opportunities to develop innovative and impactful projects by combining design and technology. Open to collaborations and eager to expand my knowledge in this evolving industry.
-
-### 📫 Contact Me  
-Reach out via email: pedro_mdsoares@hotmail.com
-
-### 🔗 Connect  
-Let's connect on [LinkedIn](https://www.linkedin.com/in/pedrosoares999)!
